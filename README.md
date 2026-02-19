@@ -1,6 +1,15 @@
 KIJDANHLOJUGHIKVBJJUIGYFUTKGCJVHKBJNUHOGIYFVHJKBJUOHGILKJ kj;kjsflkajkalikaiejffjkifikfkdfkdfh
+<<<<<<< HEAD
 
 
 
 POPA 
 JOUHF9YEIAJND 
+=======
+ggggggggggg
+gggggggggg
+gggggggggg
+>>>>>>> 69bfdd42d81771814d64b592a02716c8438b9127
+PRIVET VIKA 
+
+HOCHU V VEGU
